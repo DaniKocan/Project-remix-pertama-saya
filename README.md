@@ -1,2 +1,4 @@
 # Project-remix-pertama-saya
-Ini project remix pertama saya di GitHub
+# semoga kalian semua terhibur
+# tautan file
+# jangan lupa komen 
